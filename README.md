@@ -7,4 +7,7 @@
 
 # Film Terms
 * [Columbia Film Language Glossary](https://filmglossary.ccnmtl.columbia.edu/)
-* 
+
+
+## Writing Essays  
+[Academic phrasebank](https://www.phrasebank.manchester.ac.uk/) 
