@@ -7,7 +7,8 @@
 
 ### Film Terms
 * [Columbia Film Language Glossary](https://filmglossary.ccnmtl.columbia.edu/)
-
+* [Studio Binder Guide to Camera Shots](https://www.studiobinder.com/blog/ultimate-guide-to-camera-shots/) (Very useful!)
+* 
 ### Glossary of Art Terms  
 * [MoMA's Art Terms](https://www.moma.org/collection/terms/)
 
