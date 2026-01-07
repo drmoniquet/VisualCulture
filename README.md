@@ -1,6 +1,10 @@
 # Visual Culture 2026
 
 ## Resources  
+
+### How to find images
+* [Helpful instructions on working with images](https://ecampusontario.pressbooks.pub/introtovisualculture/front-matter/working-with-images/)
+
 ### How to read an image or scene
 * [Reading the Pictures](https://www.readingthepictures.org/)  
 * [New York Times' Anatomy of a Scene](https://www.nytimes.com/column/anatomy-of-a-scene)
