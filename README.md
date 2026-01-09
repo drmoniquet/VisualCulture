@@ -1,7 +1,7 @@
 # Visual Culture 2026
 
 ![IMG_1598](https://github.com/user-attachments/assets/1bd511dc-8b97-491b-a993-73a64000a5ff)
-
+Joan Mitchell, "[George Went Swimming at Barnes Hole, but It Got Too Cold](https://buffaloakg.org/artworks/k195811-george-went-swimming-barnes-hole-it-got-too-cold)," 1957. From personal photograph taken at Buffalo AKG Art Museum by Monique Tschofen. 
 
 ## Resources  
 
