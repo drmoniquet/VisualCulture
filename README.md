@@ -1,5 +1,8 @@
 # Visual Culture 2026
 
+![IMG_1598](https://github.com/user-attachments/assets/1bd511dc-8b97-491b-a993-73a64000a5ff)
+
+
 ## Resources  
 
 ### How to find images
