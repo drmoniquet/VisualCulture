@@ -15,6 +15,7 @@
 * 
 ### Glossary of Art Terms  
 * [MoMA's Art Terms](https://www.moma.org/collection/terms/)
+* [Comics terms](https://www.cartoonstudies.org/wp-content/uploads/2014/06/terminology.pdf) 
 
   
 ### Writing Essays  
